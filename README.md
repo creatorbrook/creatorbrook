@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 # 💫 About Me:
-I'm currently working on my web page<br>I'm looking to collaborate on web developers<br>I'm currently learning coding<br>Ask me about anything
+I'm currently working on my web page<br>I'm looking to collaborate on web developers<br>I'm currently learning coding<br>I'm looking to collaborate on web developers<br>I'm looking also looking for a gig<br>Ask me about anything
 
 
 ## 🌐 Socials:
